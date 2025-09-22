@@ -1,2 +1,4 @@
 # DDOS-ATTACK
 ⚠️WARNING Distributed Denial of Service⚠️
+
+TIDAK UNTUK DISALAH GUNAKAN
